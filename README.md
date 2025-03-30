@@ -2,7 +2,7 @@
 - 👀 I’m interested in Computer related Projects
 - 🌱 I’m currently learning Coding,Hacking
 - 💞️ I’m looking to collaborate on Projects
-- 📫 How to reach me Monishprasanna99424@gmail.com/IG:its_monish72
+- 📫 How to reach me Monishprasanna99424@gmail.com
 - 😄 Pronouns: He
 - ⚡ Fun fact: ...
 
